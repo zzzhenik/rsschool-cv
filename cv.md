@@ -1,6 +1,6 @@
 # Egorov Evgeny
 Date of birth: *26th July 1986*  
-Adress: *Minsk, Belarus*   
+Address: *Minsk, Belarus*   
 e-mail: *post.bag@mail.ru*    
 Phone number: *+375295012075*  
 Viber: *+375295012075*
